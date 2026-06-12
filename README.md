@@ -39,6 +39,6 @@ COMSATS University Islamabad, Attock Campus
 📫 Connect With Me:
 
 📧 Email: abdullahwasim766@gmail.com
-💼 LinkedIn: linkedin.com/in/abdullah-wasim-239736264
+💼 LinkedIn: www.linkedin.com/in/abdullah-wasim-239736264
 
 ⭐ Always learning, always building!
